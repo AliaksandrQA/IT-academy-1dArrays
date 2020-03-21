@@ -1,0 +1,1 @@
+# https-github.com-AliaksandrQA-1d-ArraysIT-academy-
